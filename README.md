@@ -1,1 +1,1 @@
-# homework6.1. is more or less done. but i underestand to basic structur
+# homework6.1. 70%. but i understand to basic structur
